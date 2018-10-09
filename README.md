@@ -1,2 +1,2 @@
 # Hello_future
-chase for a bright future here
+I don`t know how to use github
